@@ -1,6 +1,6 @@
 ### Hi there 👋 Eu sou o Jorge Moraes
 
-🌱Estudanando: Engenharia de Software <br>
+🌱Cursando: Engenharia de Software <br>
 😊pronouns: Ele/Dele
 
 <div align="center">
